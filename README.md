@@ -22,7 +22,7 @@ searched that hard*** so if you know of one,
 + Allow me to add a bunch on notes on alterations I made/thoughts/etc
 
 I have used a spreadsheet in the past but I really haven't enjoyed
-the experience :shrug:
+the experience :woman_shrugging:
 
 ![image](https://user-images.githubusercontent.com/4185328/73596366-6fc67f00-4519-11ea-8e0d-86ffec0e3356.png)
 
